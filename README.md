@@ -1,3 +1,6 @@
+
+![ZUTOMAYO GIF](https://github.com/user-attachments/assets/47283ab3-2596-4ea4-8a11-586d23333dfb)
+
 **Software developer, bookworm & bodybuilder**
 - ♒ 16 years old
 - 🎓 Languages: *Russian* (Native), *English* (Speaking without accent, reading and writing fluently), *Japanese* (Learning, the worst level on the planet)
