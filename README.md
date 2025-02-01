@@ -1,5 +1,4 @@
-
-![ZUTOMAYO GIF](https://github.com/user-attachments/assets/47283ab3-2596-4ea4-8a11-586d23333dfb)
+![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hoapn53qt2gxaf56yfdmb54j5q&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)
 
 **Software developer, bookworm & bodybuilder**
 - ♒ 16 years old
